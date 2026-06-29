@@ -1,4 +1,4 @@
-#  
+#  Experience evade like never before with best Script for evade, the #1 Script. Includes custom skins and fly for unbeatable performance.
 
 
 
